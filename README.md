@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Young-Gong, my real name is Oliver. And im a Danish DJ.
+- 👋 Hi, I’m @Young-Gong, my real name is Oliver. And im a Danish DEV.
 - 👀 I’m interested in making flows and stuff.
 - 💞️ Of you want me to play a party or make you something just lmk ...
 - 📫 How to reach me Just add my discord Young Gong#6666
